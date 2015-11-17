@@ -1,4 +1,3 @@
 # staphyota
 
-Well MY favorite is kitkats
-
+what's your favorite color
